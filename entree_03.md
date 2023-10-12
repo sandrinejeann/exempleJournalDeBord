@@ -14,7 +14,7 @@ J'aimerais peut-être aller en design de jeux vidéos ou en animation. Mais idé
 Une entreprise que j'apprécie serait Nintendo, car j'apprécie leur style de jeu et les designs utilise qui correspond plus à mon style personnel. Ils sont capable de se renouveler et de rester au gout du jour en gardant leurs fans. Un artiste qui m'inspire est Juan Cruz (@jgcruz3d), car il montre le processus dans l'animation 3D et les différents stages. Il est intéresant de mieux comprendre comment c'est fait et le résultat final.
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Travailler dans un domaine qui me passionne soit en web, jeux vidéos, animation ou modelisation dans une petite compagnie. Avoir fini ma technique sans avoir à aller à l'université, mais si un programme me passionne vraiment je pourrais y aller pour avoir le métier que je veux.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+J'aimerais modéliser et animer un projet du début à la fin dans mon style et de ma propre créativité. Coder un jeu ou un programme et avoir d'autre personne le test.

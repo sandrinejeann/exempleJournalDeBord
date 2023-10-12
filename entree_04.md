@@ -12,9 +12,9 @@ Un designer de jeux vidéo va devoir concevoir les différentes étapes d'un jeu
 Le concepteur de jeux vidéo prend en charge l'expérience de jeu. Il fait les scénarios. Il collabore avec les articles et supervise la rédaction des textes. Il s'assure que tout se déroule bien et en coordination. 
 
 ### Emploi 4 - Uquac nad
-4 à 5 lignes
+Si je veux quelque chose de plus précis et aller plus loin dans mes études. Il y a plusieurs de programmes offert relié au jeux vidéo comme de l'animation 3D, modélisation et le design de jeux. On apprend plus spécifiquement l'art du jeux vidéo.
 
-### Emploi 5 - Intégrateur multimédia
-4 à 5 lignes
+### Emploi 5 - Intégrateur multimédia et Web
+L'intégrateur multimédia produit des pages web, traite des images et du son. Il doit concevoir le design et l'interactivité de projets. Il peut faire des jeux intéractifs, des animations 2D et 3D et des créations audios et visuelles.
 
 

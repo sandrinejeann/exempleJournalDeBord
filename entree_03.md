@@ -11,7 +11,7 @@ J'aime beaucoup les jeux vidéos, mais j'ai un peu d'expérience dans le montage
 J'aimerais peut-être aller en design de jeux vidéos ou en animation. Mais idéalement dans ce domaine.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Une entreprise que j'apprécie serait Nintendo, car j'apprécie leur style de jeu et les designs utilise qui correspond plus à mon style personnel. Ils sont capable de se renouveler et de rester au gout du jour en gardant leurs fans. Un artiste qui m'inspire est Juan Cruz (@jgcruz3d), car il montre le processus dans l'animation 3D et les différents stages. Il est intéresant de mieux comprendre comment c'est fait et le résultat final.
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
